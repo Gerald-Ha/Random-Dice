@@ -7,4 +7,5 @@
 
 
 
-![Screenshot_941](https://github.com/Gerald-Ha/Random-Dice/assets/53166232/748d4722-6a51-4f0b-9b01-7372a1bd49e1)
+![ezgif-7-2e925a4050](https://github.com/Gerald-Ha/Random-Dice/assets/53166232/67655c07-861b-448e-99ea-0e1305a720b8)
+
